@@ -1,3 +1,3 @@
 # testfsaf
 
-![alt text](https://imgur.com/NSO228c)
+![alt text](https://i.imgur.com/NSO228c.png)
